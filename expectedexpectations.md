@@ -25,7 +25,7 @@ This is a document I always write when I start to work with a new direct report 
 
 ## What you can expect from me?
 
-- Clear communication and instant feedback, whether I feel you will like it or not
+- Clear communication and instant feedback
 - To be a perfectionist and continuously challenge you to be better every day
 - To remain calm and provide clear directions under stressful situations
 - Find the help you need whenever something blocks your work
