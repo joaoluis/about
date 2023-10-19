@@ -30,7 +30,6 @@ This is a document I always write when I start to work with a new direct report 
 - To remain calm and provide clear directions under stressful situations
 - Find the help you need whenever something blocks your work
 - To always treat you fairly and never judge you before we have the chance to talk
-- Protect you from internal politics to the best of my ability
 
 ## What you can't expect from me?
 
