@@ -8,7 +8,7 @@ This is a document I always write when I start to work with a new direct report 
 - To act with integrity and take ownership
 - To place the company’s strategy and goals as your first priority
 - To always do what you said you were going to do
-- To keep all company official communication channels updated and be emphatic and respectful in all your interactions with colleagues
+- To keep all company official communication channels updated and be empathetic and respectful in all your interactions with colleagues
 - Talk professionally about the company at all times
 - Approach me directly if you ever feel threatened or disrespected in any way by a working colleague
 - To be proactive, share your knowledge and help your colleagues whenever you see an opportunity
